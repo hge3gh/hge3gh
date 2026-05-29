@@ -21,7 +21,7 @@ ${\color{#9C82AC} \text{
   I have really bad memory ,}}$
 ${\color{#9C82AC} \text{sorry if I forget your name}}$<br>
 ${\color{#9C82AC} \text{Please don't srs rp with me, it scares me}}$<br>
-${\color{#9C82AC} \text{c+h always ok unless stated otherwise}}$
+${\color{#9C82AC} \text{c+h always ok unless stated otherwise}}$<br>
 ${\color{#9C82AC} \text{light inspo is ok!}}$
 </p>
 <img SRC="https://github.com/hge3gh/Images/blob/226efe7c39f5072c115e1bdf3b23a5c936ba6d03/Untitled641_20260528140229.png"width="100%">
