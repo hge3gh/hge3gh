@@ -21,5 +21,4 @@ ${\color{#9C82AC} \text{ sorry if I forget your name}}$
 ${\color{#9C82AC} \text{ ۪ Please don't rp with me, it scares me}}$
 </p>
 <img SRC="https://github.com/hge3gh/Images/blob/226efe7c39f5072c115e1bdf3b23a5c936ba6d03/Untitled641_20260528140229.png"width="100%">
-Credits:
-[1](https://x.com/polybiiuss) [2](https://x.com/dailysanses)
+<img SRC="https://github.com/hge3gh/Images/blob/b7ff45787addd19a73fb8de4502ed9497e53321a/Untitled641_Restored_20260528202131.png"width="100%">
