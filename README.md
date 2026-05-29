@@ -2,7 +2,7 @@
 <img
 SRC="https://github.com/hge3gh/Images/blob/226efe7c39f5072c115e1bdf3b23a5c936ba6d03/Untitled641_20260528140226.png"width=100%>
 <p align="center">
-  $${\color{#64347C}\Large \text{;~zaza~ ׅou~~kei~.ᐟ}}$$<br>
+  $${\color{#64347C}\Large \text{;~zaza~ ׅou~~kie~.ᐟ}}$$<br>
   ${\color{#9C82AC} \text{nicknames/given names ,}}$
 ${\color{#9C82AC} \text{and calling me by my avatar are ok too!}}$<br>
 ${\color{#9C82AC} \text{it / he / any~  ᛝ~ 6teen yo .ᐟ}}$<br>
