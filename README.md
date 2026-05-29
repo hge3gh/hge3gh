@@ -9,4 +9,6 @@
 ${\color{#9C82AC} \text{and calling me by my avatar are ok too!}}$
 </p>
 <img
-SRC="https://github.com/hge3gh/Images/blob/226efe7c39f5072c115e1bdf3b23a5c936ba6d03/Untitled641_20260528140226.png"width=100%>
+SRC="https://github.com/hge3gh/Images/blob/226efe7c39f5072c115e1bdf3b23a5c936ba6d03/Untitled641_20260528140226.png"width=100%><p align="center">
+${\color{#ABABB5} \text{it / he / any ᛝ agender , unlabled}}$
+</p>
