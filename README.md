@@ -14,7 +14,7 @@ ${\color{#ABABB5} \text{big big berror fan!!}}$
 $${\color{#64347C} \Large \text{ ִByi 𓏼}}$$
 </p>
 <p align="center">
-$${\color{#9C82AC} \text{-13 dni eek}}$<br>
+$${\color{#9C82AC} \text{-13 dni eek}}$$<br>
 ${\color{#9C82AC} \text{I'm shy, I struggle to hold}}$
 ${\color{#9C82AC} \text{conversations n I'm very awkward}}$<br>
 ${\color{#9C82AC} \text{ 
